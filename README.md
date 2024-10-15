@@ -1,0 +1,1 @@
+Hello! Here are the adjusted Tasks for Assignment6
